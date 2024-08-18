@@ -76,8 +76,15 @@ For any inquiries, feel free to reach out!
 
 ## 📸 **Screenshots**
 
+<img width="1371" alt="Screenshot 2024-08-18 at 1 43 40 PM" src="https://github.com/user-attachments/assets/699fe8a4-bc6a-488a-ab06-948e44d816dc">
+<img width="881" alt="Screenshot 2024-08-18 at 1 45 50 PM" src="https://github.com/user-attachments/assets/59d80e4d-831a-4f81-896a-1126f4c580c0">
 
----
+---<img width="883" alt="Screenshot 2024-08-18 at 1 46 45 PM" src="https://github.com/user-attachments/assets/bd4077cc-e541-4500-a56d-a73dd99e379f">
+
+<img width="692" alt="Screenshot 2024-08-18 at 1 50 53 PM" src="https://github.com/user-attachments/assets/e12db00e-7f92-47d2-ab26-f1239cd7665a">
+<img width="882" alt="Screenshot 2024-08-18 at 1 54 36 PM" src="https://github.com/user-attachments/assets/60fd51c9-174c-45e3-9f13-c86da683e7d8">
+<img width="883" alt="Screenshot 2024-08-18 at 1 46 45 PM" src="https://github.com/user-attachments/assets/167b0c44-f642-4bdb-95c5-be478c991407">
+<img width="692" alt="Screenshot 2024-08-18 at 1 50 53 PM" src="https://github.com/user-attachments/assets/ebec5bae-574d-4126-b574-71b13c5c71b5">
 
 ## 🙏 **Credits**
 
